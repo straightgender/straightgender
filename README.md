@@ -1,7 +1,5 @@
-- 👋 Hi, I’m Jonsi Lo
-- 👀 I’m interested in programming
-- 🌱 I’m currently loving my life
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: When you close your eyes, you can't see
+Old memories make you cry and be happy at the same time.
+                                                          - Jónsi Lo 
 
-
+It's not destiny, who make a depressed loner, it's society.
+                                                          - Chantal
